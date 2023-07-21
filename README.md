@@ -1,0 +1,1 @@
+# TED2020_karanasi_data
